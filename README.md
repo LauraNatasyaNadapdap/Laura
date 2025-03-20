@@ -1,2 +1,0 @@
-# Laura
-cukup saya muak
